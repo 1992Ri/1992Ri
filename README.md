@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @1992Ri
-- 👀 I’m interested in  ...
+- 👀 I’m interested in  абсолютно всё!:)
 - 🌱 I’m currently learning  в школе
 - 💞️ I’m looking to collaborate on  всех желающих
 - 📫 How to reach me  : напишите мне на почту  lohtinamargo@gmail.com
